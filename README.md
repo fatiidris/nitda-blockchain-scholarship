@@ -1,1 +1,0 @@
-# nitda-blockchain-scholarship
